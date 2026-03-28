@@ -1,2 +1,29 @@
-# -BIG-ANNOUNCEMENT
-💡 Imagine this…  You wake up with a clear plan. Your content is ready. Your system is automated. And you’re actually making money online.  Sounds impossible?  Not anymore.  🔥 With the Ultimate Digital Growth Bundle, you get everything you need:  ✔ Plan smarter ✔ Create faster ✔ Earn better  🚀 Stop wasting time. Start building your system today. 
+🚨 **BIG ANNOUNCEMENT – DIGITAL PRODUCT LAUNCH 2026**
+
+We are officially launching the **Ultimate Digital Growth Bundle** 🔥
+
+Designed for:
+✔ Students
+✔ Content Creators
+✔ Beginners
+✔ Side Hustlers
+
+💡 What you will get:
+
+* AI Study Planner Templates
+* Content Creator Dashboard
+* AI Prompt Packs
+* YouTube Automation Kits
+* Digital Business Starter Kits
+
+🎯 One goal:
+Help you **save time, stay consistent, and start earning online**
+
+💰 Launch Offer:
+Starting from just ₹99 (Limited Time)
+
+🎁 Bonus:
+Free updates + exclusive community access
+
+👉 Join early access now & transform your workflow
+
